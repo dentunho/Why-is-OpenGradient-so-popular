@@ -1,8 +1,8 @@
 # Why-is-OpenGradient-so-popular
-
+![Image Alt](https://github.com/dentunho/Why-is-OpenGradient-so-popular/blob/2c2121e93600365b4cd8cdc5767f3520ce35ef13/HDNCS4-bQAU9VA_.jpg)
 
 # 1. OpenGradient has raised $8.5 million
-.....
+![Image Alt](https://github.com/dentunho/Why-is-OpenGradient-so-popular/blob/2c2121e93600365b4cd8cdc5767f3520ce35ef13/HDNCjOtbcAAG143.jpg)
 # 2 It includes the participation of major funds such as:
 
 Coinbase Ventures,a16z CSX,SV Angel,Foresight Ventures,Symbolic Capital.....
